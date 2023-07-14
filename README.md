@@ -7,3 +7,4 @@ I am glad I am a part of this class.
 Corrections are been made
 
 Making adjustments to this file on 07/14
+Making more adjustments on this Friday afternoon
